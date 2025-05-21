@@ -32,7 +32,7 @@ I want to **build in the open**, contribute to meaningful projects (especially a
 ## 📫 Let’s Connect
 
 - [LinkedIn](https://www.linkedin.com/in/praise-echem-4b468a189/)
-- [Portfolio](#) (coming soon)
+- [Design Portfolio](https://praiseechem.my.canva.site/)
 
 > “Design is the silent ambassador of your product.” — Paul Rand
 
